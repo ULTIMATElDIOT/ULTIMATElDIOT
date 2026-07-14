@@ -2,5 +2,5 @@
 </div>
 <div align="center">
 
-[**新**𝖻𝗈𝗈𝗄](https://internetangels.atabook.org)   [𝗌𝗍𝗋𝖺𝗐](https://documentary.straw.page)
+**on break. i will not respond to any messages in my strawpage or atabook**
 
